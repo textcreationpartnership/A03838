@@ -35,7 +35,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-〈1 page inserted from a different book〉〈1 page inserted from a different book〉REGI SVO, POST BIS SEP
+
 1. AD REGEM.
 
 #####Body#####
